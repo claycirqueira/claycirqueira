@@ -1,4 +1,4 @@
-<br>Links para meu Linkedin e Instagram abaixo: 
+<br>Meu github e meu Linkedin: 
 
 
 <sub><br> 
